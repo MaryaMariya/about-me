@@ -1,6 +1,6 @@
 # Привет! Меня зовут Жукова Мария
 
-![Жукова Мария](https://disk.yandex.ru/i/xLQwLUp0FIE4Mg)
+![Жукова Мария](https://disk.yandex.ru/i/Sr_SGiqnWZP_4A)
 
 ## Психолог, HR и на данный момент слушатель курса "Инженер по тестированию" в [Нетологии](https://netology.ru/)
 
